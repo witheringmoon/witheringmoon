@@ -1,3 +1,4 @@
 <div align="center">
 
-[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Silkscreen&pause=1000&color=FF3F97&width=435&lines=I+dunno..)](https://git.io/typing-svg)
+<img width="640" height="594" alt="image" src="https://github.com/user-attachments/assets/b1753c76-f3fa-4d4a-8f19-04cfcc2fb527" />
+

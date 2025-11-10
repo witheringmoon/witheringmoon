@@ -4,4 +4,4 @@
 
 $${\color{blue}\text{and when i'm back in chicago.}}$$
 
-[prns.cc](https://pronouns.cc/@nightcarnival)
+[prns.cc](https://pronouns.cc/@nightcarnival) [rentry](https://rentry.co/werelinedup)

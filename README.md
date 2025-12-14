@@ -1,6 +1,7 @@
 <div align="center">
 
-<img width="734" height="259" alt="image" src="https://github.com/user-attachments/assets/1402e1e8-5c2e-44fc-8403-bb6433b7685d" />
+<img width="1200" height="400" alt="image" src="https://github.com/user-attachments/assets/a5b9fe78-3be0-4c77-afb5-2ca5b71cdd9e" />
+
 
 
 $${\color{pink}\text{come, and let us dip our fingers in the water.}}$$

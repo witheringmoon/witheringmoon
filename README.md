@@ -5,4 +5,4 @@
 
 $${\color{pink}\text{come, and let us dip our fingers in the water.}}$$
 
-[prns.cc](https://pronouns.cc/@nightcarnival) [rentry](https://rentry.co/werelinedup)
+[prns.cc](https://pronouns.cc/@nightcarnival)
